@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pipe2507
+- 👀 I’m interested in Coding and Gami g
+- 🌱 I’m currently learning NextJS
+- 📫 How to reach me felipe@felipe.bio
